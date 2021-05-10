@@ -1,2 +1,0 @@
-# zzdycwc.github.io
-Fighting!
